@@ -1,4 +1,4 @@
-#### 👋
+#### Welcome! 👋
 #### My name is Jinyou Kim 😄 I'm interested in Matematics :books: & Data Analysis :chart_with_upwards_trend: (especially in Finance)
 #### I hope to live in 'Always Like Movies' :clapper:
 
